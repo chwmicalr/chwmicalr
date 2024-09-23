@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate in any way i can
-- 📫 How to reach me at school
+- 📫 Reach me at school
 - 😄 Pronouns: he him
 - ⚡ Fun fact: none
 
